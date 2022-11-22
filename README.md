@@ -1,1 +1,1 @@
-Zbiór różnych programów robiących cokolwiek
+różne takie i inne też
